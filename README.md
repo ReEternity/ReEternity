@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I am an incoming freshmen at University of Massachusetts--Boston.
+
+On my free time, I'm working on fun side projects. Ask me about any of them!
+
 <!--
 **ReEternity/ReEternity** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
