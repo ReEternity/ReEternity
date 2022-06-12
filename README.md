@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, my name is Kam Lun Cheung 👋
 
 I am an incoming freshmen at University of Massachusetts--Boston.
 
