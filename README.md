@@ -1,6 +1,6 @@
 ### Hi there, my name is Kam Lun Cheung 👋
 
-I am a freshmen at University of Massachusetts--Boston.
+I am a sophomore at University of Massachusetts--Boston.
 
 On my free time, I'm working on fun side projects. Ask me about any of them!
 
